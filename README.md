@@ -1,3 +1,4 @@
+![frase](/storage/emulated/0/Pictures/Canva/20230802_195821_0000.jpg)
 # Boas Vindas
 ## ✨Quem sou eu✨
 Olá! Meu nome é Nataniele sou estudante de [Sistemas para Internet](https://instagram.com/sistemasparainternetunicesumar?igshid=OGQ5ZDc2ODk2ZA==) na universidade [Unicesumar](https://instagram.com/unicesumaroficial?igshid=OGQ5ZDc2ODk2ZA==) . E sou novata na área de TI. Em 2 anos e meio programar utilizando um smatphone me ajudou a perceber o quanto sou perseverante naquilo que quero. 
